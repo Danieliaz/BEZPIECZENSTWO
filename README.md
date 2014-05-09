@@ -1,0 +1,4 @@
+BEZPIECZENSTWO
+==============
+
+BEZPIECZEŃSTWO
